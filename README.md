@@ -4,9 +4,17 @@
 Alexander Volkanovski:
 Age: 36
 Previous UFC Featherweight Champion
-A man famous for his durability, fight IQ and well-rounded skill set.
+A man famous for his durability, fight IQ and well-rounded skill set. Reddit
 Dealt a loss of the featherweight belt to Ilia Topuria, February 2024.
-Aiming to reclaim the crown and reestablish his superiority in the division.
+Aiming to reclaim the crown and reestablish his superiority in the division. {{Reddit}}
+
+💻Best Live Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+
 Other recent setbacks include a knockout loss to Islam Makhachev in late 2023. Yet with all of that against him, Volkanovski is one of the most seasoned and dogged competitors in the UFC featherweight division.
 Diego Lopes:
 Age: 30
